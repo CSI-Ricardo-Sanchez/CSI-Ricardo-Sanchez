@@ -26,5 +26,8 @@
 4. Vierte la mezcla en un molde o en varios pequeños y espolvorea con canela por encima. Deja que la mezcla reposa hasta que tome temperatura ambiente y entonces reserva en la nevera para que termine de cuajar.
 5. Disfruta!!!
 
+### Video:
+- https://www.youtube.com/watch?v=gE2kl-pPF-I
+
 ### Referencia:
 https://www.recetasgratis.net/receta-de-majarete-boricua-59548.html
