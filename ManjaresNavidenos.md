@@ -9,15 +9,15 @@
 </div>
   
 ### Ingredientes:
-- 🥛 1 lata Leche de Coco
-- 🥛 lata Leche Fresca
-- Azúcar
-- un clavo de Canela
+- 🥛 ***1*** lata Leche de Coco
+- 🥛 ***1*** lata Leche Fresca
+- Azúcar (a gusto)
+- ***1*** clavo de Canela
 - 🧂 una pizca de Sal
-- 1 cucharadita de Vainilla
-- una pizca Canela en polvo
-- 🍚1 taza Harina de Arroz
-- 1/2 taza Agua
+- ***1*** cucharadita de Vainilla
+- ***1*** pizca Canela en polvo
+- 🍚 ***1*** taza Harina de Arroz
+- ***1/2*** taza Agua
 
 ### Procedimiento:
 1. Hierve los calvos de especias en una olla junto con el agua. Cuando rompa el hervor, pasa la preparación por un colador y reserva para luego usarla.
