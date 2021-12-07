@@ -1,5 +1,10 @@
+<div align="center">
+
 # Manjares Navideños
 ## Majarete
+  
+</div>
+  
 ### Ingredientes:
 - 🥛 1 lata Leche de Coco
 - 🥛 lata Leche Fresca
